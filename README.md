@@ -1,0 +1,1 @@
+# lulus.smp6solok
